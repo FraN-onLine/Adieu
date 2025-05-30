@@ -1,4 +1,4 @@
-# Adeui
+# Adieu
 Last days na sana ng daily activity ko, namiss ko pa?
 futang ina, sayang naman
 
